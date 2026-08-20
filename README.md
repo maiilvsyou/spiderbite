@@ -1,6 +1,6 @@
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
-haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag 💔💔
+<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag 💔💔
 
 i am not a native english speaker! i might not catch a lot of things or might be slow when answering, sorry :(
 
