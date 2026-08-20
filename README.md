@@ -3,7 +3,7 @@
 <p align="center">hullo! im mai/maite, call me whatever u want! tablet user: im always lag, especially at typing. 
 
 
-<p align="center">i am not a native english speaker ( mexican ), i might not catch a lot of things or be slow when answering, sorry :(
+<p align="center">i am not a native english speaker (mexican), i might not catch a lot of things or be slow when answering, srry 
 
 
 <p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and
