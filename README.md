@@ -1,6 +1,6 @@
 <img src="https://tenor.com/tL7BeRoDyzT.gif">
 
-<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag 💔💔
+<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag as FUCK
 
 
 <p align="center">i am not a native english speaker! i might not catch a lot of things or might be slow when answering, sorry :(
