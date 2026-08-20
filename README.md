@@ -10,5 +10,6 @@
   20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist...
 
 
-<p align="center"> ppl dont read these usually, bad thing. any fandom can int! i really dont care abt the fandom, just 
+<p align="center"> ppl dont read these usually, bad thing. any fandom can int! i really dont care abt the fandom,
+  just 
   keep everything respectful please! (except tcooal. get tf away.)
