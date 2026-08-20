@@ -13,4 +13,4 @@
   <p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and 20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
 
 
-<p alignt="center">  I LIVE IN CANADA YAAAAYY
+<p alignt="center">I LIVE IN CANADA YAAAAYY
