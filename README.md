@@ -13,7 +13,7 @@
   <p align="center">extended dni list :  MAGA & ICE supporters, homophobia + transphobia, racism, pdfs, 
     
     
-    -12 and 20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
+   -12 and 20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
 
 
 <p align="center"> ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
