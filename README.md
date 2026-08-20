@@ -10,10 +10,8 @@
   just keep everything respectful please! (except tcoal. get away.)
 
 
-  <p align="center">extended dni list :  MAGA & ICE supporters, homophobia + transphobia, racism, pdfs, 
-    
-    
-   -12 and 20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
+  <p align="center">extended dni list :  MAGA & ICE supporters, homophobia + transphobia, racism, pdfs, -12 and 20+ ppl, antifurrys,
+  <p align="center">  zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
 
 
 <p align="center"> ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
