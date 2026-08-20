@@ -1,5 +1,5 @@
 <p align="center"> <img width="800" alt="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" src="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" />
-<p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+<p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 <p align="center">hullo! im mai/maite, call me whatever u want! tablet user: im always lag!! always at safe server & spanish safe
 
