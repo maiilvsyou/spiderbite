@@ -1,12 +1,12 @@
 <p align="center"><p align="center"> <img width="800" alt="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" src="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" />
 
-<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im always lagging srry !!
+<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im always lagging.,.
 
 
-<p align="center">i am not a native english speaker! i might not catch a lot of things or might be slow when answering, sorry :(
+<p align="center">i am not a native english speaker! i might not catch a lot of things or be slow when answering, sorry :(
 
 
-<p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and 
+<p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and
   20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist,.,
 
 
