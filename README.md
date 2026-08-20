@@ -3,7 +3,7 @@
 <p align="center">hullo! im mai/maite, call me whatever u want! tablet user: im always lag!! always at safe server & spanish safe
 
 
-<p align="center">i am not a native english speaker (mexican), i might not catch a lot of things or be slow when answering, srryy 
+<p align="center">i am not a native english speaker ( mexican ), i might not catch a lot of things or be slow when answering, srryy 
 
 
 <p align="center">  any fandom can int! i really dont care abt the fandom,
@@ -11,3 +11,6 @@
 
 
   <p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and 20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest...
+
+
+  I LIVE IN CANADA YAAAAYY
