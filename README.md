@@ -1,4 +1,4 @@
-<div class="tenor-gif-embed" data-postid="16460537570342620339" data-share-method="host" data-aspect-ratio="1.33155" data-width="100%"><a href="https://tenor.com/view/spiderman-gif-16460537570342620339">Spiderman GIF</a>from <a href="https://tenor.com/search/spiderman-gifs"><Spiderman GIFs></a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="https://tenor.com/view/spiderman-gif-16460537570342620339">
 
 <p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag as FUCK
 
