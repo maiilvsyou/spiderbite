@@ -1,4 +1,4 @@
-<p align="center"><img src="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif">
+<p align="center"> <img width="800" alt="https://tenor.com/view/spiderman-gif-16460537570342620339" src="https://github.com/user-attachments/assets/6132ccc8-efe2-4dae-a706-f19714571cf8" /><p align="center"><img src="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif">
 
 <p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag as FUCK
 
