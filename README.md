@@ -5,10 +5,9 @@
 <p align="center">i am not a native english speaker ( mexican ), i might not catch a lot of things or be slow when answering, srryy 
 
 <p align="center">    any fandom can int! i dont care abt the fandom, just keep everything respectful please! (except tcoal. please.)
-
+  
 ㅤㅤ<p align="center">————————————————————————————————————————————————
 
   <p align="center">extended dni list :  MAGA & ICE supporters, homophobia + transphobia, racism, pdfs, -12 and 20+ ppl, antifurrys,<p align="center">  zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest, ex-friends, ill add more later!!
-ㅤㅤ
 ㅤㅤ
 <p align="center"> ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
