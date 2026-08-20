@@ -1,6 +1,6 @@
 <p align="center"><p align="center"> <img width="800" alt="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" src="https://media1.tenor.com/m/5G-TtWQ-TLMAAAAd/spiderman.gif" />
 
-<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im always lagging.,.
+<p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im always lag, especially at typing, it crashes dude
 
 
 <p align="center">i am not a native english speaker! i might not catch a lot of things or be slow when answering, sorry :(
