@@ -7,8 +7,8 @@
 
 
 <p align="center">extended dni list :  MAGA, ICE and tr*mp supporters, homophobia + transphobia, racism, pedophilia, -12 and
-  20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist,., i might add more later (⁠˘⁠･⁠_⁠･⁠˘⁠)
+  20+ ppl, antifurrys, zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist...
 
 
-<p align="center">lowkey, ppl dont read these usually so i just hide em. any fandom can int! i really dont care abt the fandom, just 
-  keep everything respectful please! 
+<p align="center"> ppl dont read these usually, bad thing. any fandom can int! i really dont care abt the fandom, just 
+  keep everything respectful please! (except tcooal. get tf away.)
