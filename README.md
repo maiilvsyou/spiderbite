@@ -1,4 +1,4 @@
-‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+<img src="https://tenor.com/tL7BeRoDyzT.gif">
 
 <p align="center">haii!! im mai/maite, call me whatever u want!! tablet user, im usually lag 💔💔
 
