@@ -11,7 +11,8 @@
 <p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
   <p align="center">extended dni list :  MAGA & ICE supporters, homophobia + transphobia, racism, pdfs, -12 and 20+ ppl, antifurrys,<p align="center">  zoos, ableists, religion themes, pro-life, age players, xenophobes, n4zis, sexist, incest, ex-friends, ill add more later!!
-
+ 
+ 
 <p align="center">extended fandom list : ILL DO IT TMRW IM TIRED
 ㅤㅤ
 <p align="center"> ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
