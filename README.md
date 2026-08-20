@@ -5,7 +5,7 @@
 <p align="center">i am not a native english speaker ( mexican ), i might not catch a lot of things or be slow when answering, srryy 
 
 <p align="center">  any fandom can int! i really dont care abt the fandom,
-  just keep everything respectful please! (except tcoal. get away.)
+  just keep everything respectful please! (except tcoal. please.)
 ㅤ
 ㅤㅤ<p align="center">————————————————————————————————————————————————
 ㅤㅤ
